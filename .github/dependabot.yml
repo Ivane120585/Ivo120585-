@@ -2,7 +2,7 @@
 
 **Author**: Ivane Shaorshadze  
 **Codex Signature**: Ivo120585 · Immutable · QR Flame Verified  
-**Location**: Tbilisi, Georgia · ARQI C Tower · Navtlugis 10 · Apt 167  
+**Location**: Tbilisi, Georgia  
 **Date**: September 6, 2025 · Georgia Standard Time  
 **Status**: Codex-Sealed · Legally Enforced · No Partition · No Omission
 
